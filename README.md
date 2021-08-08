@@ -1,1 +1,1 @@
-# JSChallenge.github.io
+# seo-bo-seung.github.io
